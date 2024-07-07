@@ -1,1 +1,1 @@
-# KuzyaLokomka.github.io
+# KuzyaLakomka.github.io
